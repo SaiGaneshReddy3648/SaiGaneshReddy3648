@@ -13,7 +13,7 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ... these are the ways to reach me; 
 - Mail me:sivajireddy2017@gmail.com 
 - Instagram:sai_ganesh_reddy_buthukuri_in
-- Twitter : buthukuri_sai
+- Twitter :@buthukuri_sai
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ... never tell your growth no one listens your pains
 
