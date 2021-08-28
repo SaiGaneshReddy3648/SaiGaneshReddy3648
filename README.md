@@ -15,5 +15,5 @@ Here are some ideas to get you started:
 - Instagram:sai_ganesh_reddy_buthukuri_in
 - Twitter :@buthukuri_sai
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ... never tell your growth no one listens your pains
+- ⚡ Fun fact: ... never tell your background struggle growth because no one listens your pains
 
